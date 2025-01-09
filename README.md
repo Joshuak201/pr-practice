@@ -1,2 +1,2 @@
-## Mr. Mueller's Ideal Afternoon
+## Joshua's favorite chocolate
 Kit-kat is the best chocolate.
